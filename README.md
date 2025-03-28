@@ -25,7 +25,7 @@ After college, I started my career in a Finance Rotational Program... and that's
 - Work In Progress:) To be updated!
 
 ## 📷 Photography Website
-Come see my work at [FMU Photography] (https://frederickuy.com/). Shoot me an email and happy to book sessions/collab! 
+Come see my work at [FMU Photography](https://frederickuy.com/). Shoot me an email and happy to book sessions/collab! 
 
 ### 🤝 Connect with Me
 - [Linkedn](https://www.linkedin.com/in/frederickuy)
