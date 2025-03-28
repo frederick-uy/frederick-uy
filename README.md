@@ -10,8 +10,8 @@ After college, I started my career in a Finance Rotational Program... and that's
 
 - 📊 **Data Engineer at Google**
 - 💸 **Ex-Finance Bro**
-- 📖 **Learning Data Science**
-- 🤺 **Works in StratOps managing an 11k+ HC org and portfolio management**
+- 📖 **Currently Learning Data Science**
+- 🤺 **Works in StratOps managing 11k+ HC org and portfolio management**
 - 🎵 **Self-taught Musician in Guitar and Piano**
 - 📷 **7+ year photographer. See my work below**
 - 🎓 **Bachelor of Science in Finance**
